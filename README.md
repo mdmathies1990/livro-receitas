@@ -1,6 +1,6 @@
 # Livro de Receitas :champagne:
 
-Olá, foda-se.
+Olá, tudo bem?
 
 
 
